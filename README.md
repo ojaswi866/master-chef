@@ -1,0 +1,2 @@
+recipe for red velvet cake
+To make this red velvet cake, you’ll start by whisking together your dry ingredients: cake flour, unsweetened cocoa powder, baking soda, and salt. I suggest using cake flour because it has a lower protein content than all-purpose flour which creates a softer, lighter cake. When it comes to cake flour, two of my favorite brands are Pillsbury Softasilk and Swans Down.
